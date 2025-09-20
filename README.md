@@ -1,0 +1,1 @@
+# segok1130.github.io
